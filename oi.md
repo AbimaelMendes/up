@@ -2,7 +2,7 @@ oi, grupo!
 
 tudo bem?
 
-1)
+1)Nas quartas usamos rosa.
 
 2)
 
